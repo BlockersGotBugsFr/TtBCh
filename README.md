@@ -1,3 +1,3 @@
-<b ToonyTime Blooket Cheats>
+ToonyTime Blooket Cheats
 <br>
 just copy and paste the code 
